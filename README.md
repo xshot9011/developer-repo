@@ -1,3 +1,3 @@
 # developer-repo
 
-ISAG{BIGzalnwza007size56}
+ISAG{BIGzalnwza007s56}
